@@ -2,5 +2,5 @@
 Portofolio Alfi Nur Danialin
 
 
-Untuk Lin Portofolio
+Untuk Link Portofolio
 https://alfiiinur.github.io/portofolio-baru/
